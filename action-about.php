@@ -1,0 +1,1 @@
+continut pentru actiunea about
